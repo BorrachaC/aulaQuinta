@@ -1,2 +1,2 @@
-# github1 o ruam é muito viado
+# github1 o ruan é muito viado
 
